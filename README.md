@@ -3,6 +3,7 @@
 - 🌱 I’m currently trying to learn BackEnd Technologies
 - 💞️ I’m looking to collaborate on new job opportunities
 - 📫 Reach me : poornachanderbomma8@gmail.com
+-     LinkedIn: linkedin.com/in/poornachanderbr
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Changes day by day 
 
